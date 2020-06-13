@@ -1,2 +1,0 @@
-# xjy
-a studens
